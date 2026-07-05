@@ -6,14 +6,14 @@ Multilingual Christian worship album boldly confronting modern woke culture, fal
 
 Song01 - Woke O Woke
 
-Song02 - Sa Re Ga Ma
+Song02 - Sa Re Ga Ma (Light of the Steppes)
 
 Song03 - Light Breaks the Matrix
 
-Song04 - Woke Matrix Falls
+Song04 - New Age Matrix
 
-Song05 - Fields of Redemption
+Song05 - Fields of Redemption (Ruth & Naomi)
 
-Song06 - Break the Matrix
+Song06 - The Mormon Matrix
 
-Song07 - Moab Redemption
+Song07 - Moab’s Redemption
